@@ -1,0 +1,1 @@
+# dizi_harmonik_odev
